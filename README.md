@@ -18,20 +18,13 @@
 
 ༒⸻ 𝓘𝓝𝓕𝓞
 
-
-
-
-
 #### псвд: васаби, ♀ цисгерл, INFP, 15 y.o, ♒︎-13.02 ← MY BDAY, на ты, не против знакомтсв, стесняюся блин <img width="30" height="91" alt="Image" src="https://github.com/user-attachments/assets/dc8b329f-3323-4c7c-91fa-cae7e8a1bf2b" />
 
 ! [анон](t.me/anonaskbot?start=laskwillANONhuesos)
 
-
-
 ---
 
 </div>
-
 
 ⸻ <sub>└︎</sub> 𝑚𝑦 𝑓𝑎𝑛𝑑𝑜𝑚𝑠;; <sup>┐︎</sup>
 
