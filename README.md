@@ -6,9 +6,6 @@
 
 𝘩𝘪𝘪𝘪!! <3 
 
-
-
-
   </div> 
 <div align="center">
   
@@ -17,7 +14,7 @@
 <img src="https://github.com/user-attachments/assets/9774be7f-08ba-4f9e-8d1d-a1c6d70c9a13" width="500">
 
 
-###### приффет! я васабька, мне 7,5 * 2 лет, люблю играть в поняшки <img src="https://github.com/user-attachments/assets/fb9bb3ef-2d2e-480f-8ed1-8978e817ded6" width="50"> .
+
 
 ---
 
