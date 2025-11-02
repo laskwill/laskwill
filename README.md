@@ -8,10 +8,12 @@
 
   </div> 
 <div align="center">
+
+<img src="https://github.com/user-attachments/assets/9774be7f-08ba-4f9e-8d1d-a1c6d70c9a13" width="500">
   
 ![Profile Views](https://komarev.com/ghpvc/?username=laskwill&color=000000&label=‹𝟹&style=flat-square)
 
-<img src="https://github.com/user-attachments/assets/9774be7f-08ba-4f9e-8d1d-a1c6d70c9a13" width="500">
+
 
 
 
