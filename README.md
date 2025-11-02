@@ -1,12 +1,18 @@
+
+
 <div align="center">
 
+![велком](https://github.com/user-attachments/assets/18b1774f-eb7e-4d24-a095-c5f3672922a9)
+
 𝘩𝘪𝘪𝘪!! <3 
-![Image](https://github.com/user-attachments/assets/13d20282-f907-4713-a18a-6b18c89fd7e2)
+
+
+
 
   </div> 
 <div align="center">
   
-![Profile Views](https://komarev.com/ghpvc/?username=laskwill&color=red&label=!&style=flat-square)
+![Profile Views](https://komarev.com/ghpvc/?username=laskwill&color=000000&label=‹𝟹&style=flat-square)
 
 <img src="https://github.com/user-attachments/assets/9774be7f-08ba-4f9e-8d1d-a1c6d70c9a13" width="500">
 
