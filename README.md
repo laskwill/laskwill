@@ -4,9 +4,11 @@
 
 ![велком](https://github.com/user-attachments/assets/18b1774f-eb7e-4d24-a095-c5f3672922a9)
 
-𝘩𝘪𝘪𝘪!! <3 
+
 
   </div> 
+
+  𝘩𝘪𝘪𝘪!! <3  
 <div align="center">
 
 <img src="https://github.com/user-attachments/assets/9774be7f-08ba-4f9e-8d1d-a1c6d70c9a13" width="500">
@@ -22,7 +24,7 @@
 
 ༒⸻ 𝓘𝓝𝓕𝓞 <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/981058c7-6788-4cf9-9c95-2ed7ae75cd47" />
 
-####  псвд: васаби, ♀ цисгерл, INFP, 15 y.o, ♒︎-13.02 ← MY BDAY, на ты, не против знакомтсв <img width="30" height="91" alt="Image" src="https://github.com/user-attachments/assets/dc8b329f-3323-4c7c-91fa-cae7e8a1bf2b" />
+####  псвд: васаби , цисгерл , INFP , 15 y.o , ♒︎-13.02 ← MY BDAY , на ты , не против знакомтсв <img width="30" height="91" alt="Image" src="https://github.com/user-attachments/assets/dc8b329f-3323-4c7c-91fa-cae7e8a1bf2b" />
 
 ! [анон](t.me/anonaskbot?start=laskwillANONhuesos) 
 
