@@ -2,7 +2,6 @@
 
 <div align="center">
 
-![велком](https://github.com/user-attachments/assets/18b1774f-eb7e-4d24-a095-c5f3672922a9)
 
   𝘩𝘪𝘪𝘪!! 
 
