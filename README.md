@@ -25,7 +25,7 @@
 
 ####  псвд: васаби , цисгерл , INFP , 15 y.o , ♒︎13.02 ← MY BDAY , на ты , не против знакомтсв 
 
-ㅤ .ㅤ [анон](t.me/anonaskbot?start=laskwillANONhuesos) 
+ㅤ .ㅤ [анон](t.me/anonaskbot?start=laskwillANONhuesos)  .ㅤ [guns](https://guns.lol/laskwill)
 
 ---
 
