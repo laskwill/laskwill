@@ -6,7 +6,7 @@ hi
 
 <img width="500" alt="Image" src="https://github.com/user-attachments/assets/9168b86c-2065-4fc9-92ad-cb800ee85968" />
 
-открыта для знакомств,  up for meeting people ^_^
+###### открыта для знакомств,  up for meeting people ^_^
   
 ![Profile Views](https://komarev.com/ghpvc/?username=laskwill&color=000000&label=(=⩊=)&style=plastic)
 
