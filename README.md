@@ -44,7 +44,7 @@ at the beginning I’m a little shy, but as soon as you take the initiative I be
 
 </div> 
 
-Honkai: Star Rail, Cookie Run: Kingdom, Alien Stage, Genshin Impact, Project Sekai, Linch , MineShield , Omori
+Honkai: Star Rail, Cookie Run: Kingdom, Alien Stage, Genshin Impact, Project Sekai, Linch , MineShield , Omori , Persona
 
 <div align="center">
 
