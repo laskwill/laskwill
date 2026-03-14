@@ -28,7 +28,7 @@ hi
 
 </div> 
 
-basabu / kasya , 15 y.o , bday 13.02 , infp , she/her
+ kasya , 15 y.o , bday 13.02 , infp , she/her
 
 <div align="center">
 
@@ -52,7 +52,7 @@ Honkai: Star Rail, Cookie Run: Kingdom, Alien Stage, Genshin Impact, Project Sek
 
 </div> 
 
- .ㅤ [anon](t.me/anonaskbot?start=laskwillANONhuesos) . [infoTG](https://t.me/kkkasyainfo) . [gunslol](https://guns.lol/laskwill) . [carrds](https://laskwill.carrd.co/) (pc version) . [ata](https://laskwill.atabook.org/)
+ . [gunslol](https://guns.lol/laskwill) . [carrds](https://laskwill.carrd.co/) (pc version) . [ata](https://laskwill.atabook.org/)
  
 
  ---
