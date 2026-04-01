@@ -28,7 +28,7 @@ hi
 
 </div> 
 
- kasya , 15 y.o , bday 13.02 , infp , she/her
+ kasya , 15 y.o , bday 13.02 , so7so4sp9 7w6 , she/her
 
 <div align="center">
 
