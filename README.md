@@ -48,16 +48,6 @@ Honkai: Star Rail, Cookie Run: Kingdom, Alien Stage, Genshin Impact, Project Sek
 
 <div align="center">
 
-### link
-
-</div> 
-
- . [gunslol](https://guns.lol/laskwill) . [carrds](https://laskwill.carrd.co/) (pc version) . [ata](https://laskwill.atabook.org/)
- 
-
- ---
-
-<div align="center">
 
 ![Image](https://github.com/user-attachments/assets/81b81e86-a9d5-45e0-97bf-919a0637e4b1)
 
